@@ -1,2 +1,2 @@
 # myface5.com
-Myface5.com Sharing and Selling your Digital Content. Videos, Music, Ebooks And Software
+Myface5.com Users get a quick brand evaluation, free for content creators and promising websites: You can publish your Business ideas on Myface5 and if it receives a favorable evaluation, you’ll get a free Myface5 Brand Manager who will build a brand around it. If your brand is profitable, Your manager will work with you to scale your brand by assisting you in obtaining capital, VA’s and Automation or by assisting you in selling the brand for a quick profitable exit. You accomplished all of this for free, a business idea
